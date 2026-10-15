@@ -1,0 +1,2 @@
+# premium-hand-sew-001-hand-sewing-saddle-stitch-cr
+Stop losing track of your hand-sewing projects, patterns, and materials — this Notion template turns your craft chaos into a beautifully organized stitch lab.  The Hand Sewing &amp; Saddle Stitch Craft Lab is the only Notion workspace built specifically for hand-sewists and saddle stitch enthusiasts. It solves the pain of scattered notes, forgotten tec
